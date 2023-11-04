@@ -2,7 +2,6 @@
 
 - 🔭 I’m currently working on a Tonn of Websites
 - 🌱 I’m currently learning how to talk to people without crushing their souls (Update : Ive Given up on this 😶‍🌫) 
-- 😄 Pronouns: Awesome/Rhys/REALLLY AWESOMMEE
 - ⚡ Fun fact: I'll probably sit a long time thinking about a fun fact
  
  
