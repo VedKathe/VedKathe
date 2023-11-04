@@ -11,7 +11,7 @@
  
  
 
-Sure, here's the organized list of your skills using Markdown code with the provided SVGs:
+
 
 ## My Skills
 
